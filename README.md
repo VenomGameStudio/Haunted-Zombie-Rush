@@ -1,1 +1,1 @@
-# Honted-Zombie-Rush
+# Haunted-Zombie-Rush
